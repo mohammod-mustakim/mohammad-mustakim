@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Mohammad Mustakim
+# 👋 Hi, I'm Mohammod Mustakim
 
 ### 🎓 Student Developer | 💻 Software Development | 🚀 Building & Learning
 
